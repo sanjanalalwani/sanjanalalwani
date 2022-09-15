@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @sanjanalalwani
 - 👀 I’m interested in Web Dev and App Dev
-- 💞️ I’m looking to collaborate with people with similar interests and am very entusiastic about the work i do
-- 📫 How to reach me Email: 610sanjana@gmail.com
+- 💞️ I’m looking to collaborate with people with similar interests and am very enthusiastic about the work i do
+- 📫 Email: 610sanjana@gmail.com
